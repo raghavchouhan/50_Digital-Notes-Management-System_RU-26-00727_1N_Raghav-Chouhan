@@ -108,7 +108,7 @@ While working on this project, I got to practise:
 
 **Raghav Chouhan**
 
-B.Tech CSE Undergraduate
+B.Tech CSE Undergrad (1st Sem)
 
 ---
 
